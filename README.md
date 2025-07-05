@@ -12,6 +12,6 @@
 如果你在寻找日本AV免费在线播放平台，有几个值得推荐的站点。它们无需注册、无需付费，直接提供高清内容，支持PC和移动端观看。平台内容丰富，覆盖从经典到最新的各种类型，保证流畅播放，且不会卡顿。
 最重要的是，这些网站注重用户隐私保护，确保安全观看。无广告、无付费，享受完全免费的观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/hh20250705/hh20250705 ）</span>
 
 
